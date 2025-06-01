@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **MernStack**
 
-- 📫 How to reach me **zaidadil704@gmail.com**
+- 📫 How to reach me **aadilaminrather@gmail.com**
 
 - ⚡ Fun fact **I am a Funny**
 
